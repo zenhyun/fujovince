@@ -5,11 +5,11 @@
 <img src="https://64.media.tumblr.com/d880e9d06c66ca072060e27122e5051c/ca5481731d8f786f-d7/s400x600/36029db82103306b0378a1e72b7d358f650ffd35.pnj">
 
 <p align="center">
-◟ ᛝ ˙　zen　 ⸝⸝　21　<img src="https://64.media.tumblr.com/086eaaa72f969ed6e8a8e9c483d9bf84/34032e69611f17da-7f/s75x75_c1/2751be925ef5cf6838e25de0926b2ed8780f38f1.gifv">⠀་།† ‿ 𝜗℘
+◟ ᛝ ˙　mocha　 ⸝⸝　21　<img src="https://64.media.tumblr.com/086eaaa72f969ed6e8a8e9c483d9bf84/34032e69611f17da-7f/s75x75_c1/2751be925ef5cf6838e25de0926b2ed8780f38f1.gifv">⠀་།† ‿ 𝜗℘
 <p align="center">
-<img src="https://64.media.tumblr.com/12504f23c83dde3821e06c998a75b64f/34032e69611f17da-28/s75x75_c1/9969d6c45095bb4aa8f9717cdc3adf6d4af440f3.gifv">⠀⠀♂️　ꕀ　<img src="https://64.media.tumblr.com/5b70f3c75e7cc984ca3a9c6476032a86/34032e69611f17da-54/s75x75_c1/272e434fa6d2a90da3b85185b0f336827b61450c.gifv">　demiboy　<img src="https://64.media.tumblr.com/fb237c308b0d75652d48816aeeee716e/34032e69611f17da-31/s75x75_c1/15dfac1a087324a3e3eb481a4895e4eb36a21218.gifv">　𓂃 　₎₎
+<img src="https://64.media.tumblr.com/12504f23c83dde3821e06c998a75b64f/34032e69611f17da-28/s75x75_c1/9969d6c45095bb4aa8f9717cdc3adf6d4af440f3.gifv">⠀⠀♂️　ꕀ　<img src="https://64.media.tumblr.com/5b70f3c75e7cc984ca3a9c6476032a86/34032e69611f17da-54/s75x75_c1/272e434fa6d2a90da3b85185b0f336827b61450c.gifv">　nb sapphic　<img src="https://64.media.tumblr.com/fb237c308b0d75652d48816aeeee716e/34032e69611f17da-31/s75x75_c1/15dfac1a087324a3e3eb481a4895e4eb36a21218.gifv">　𓂃 　₎₎
 <p align="center">
-𓎠𓎠　˘　he　 𓈒　they　　
+𓎠𓎠　˘　they　 𓈒　any　　
 
 <p align="center">
 <img src="https://64.media.tumblr.com/2360cad0d412cc8fb3007914a15ad82e/4254c6637f6fa8a5-af/s640x960/3a61b613e94cf5b6cae85ec00579a1130a56182f.pnj">
